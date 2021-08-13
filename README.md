@@ -1,0 +1,2 @@
+# deidara-Tsukuri
+Explosão
